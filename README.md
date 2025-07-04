@@ -15,4 +15,4 @@
 
 如果想真正免费看到优质日本AV，记得查看用户留言和网站口碑，这通常比广告更真实。选一个安全、清晰、更新快的网站，不仅看片舒心，还能避免隐私泄露与恶意软件骚扰。这样的网站也因内容丰富、结构清晰，更容易在Google“日本AV免费”搜索中排名靠前。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd09 ）</span>
